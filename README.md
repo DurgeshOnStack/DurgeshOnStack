@@ -1,5 +1,5 @@
 # 💫 Hi 👋, I'm Durgesh Tiwari
-**A passionate FullStack Trainee  || NareshIT Hyderabad**
+**A passionate FullStack Java Developement Trainee  || NareshIT Hyderabad**
 
 Email Me 👉 ✉️ **durgeshtiwari101998@gmail.com** For Collaboration/Project or Anything Else. 😊😊
 
